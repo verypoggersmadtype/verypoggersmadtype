@@ -4,9 +4,7 @@ when i get bored i like to play and have fun so if you see me please initiate a 
 
 bands/music artists i like: self, pavement, foxtails, ARTHUR, panchiko, metric, 12rods, glass beach 
 
-(if you like any of the same artists i do please talk to me about them i'd appreciate it)
-
-dni: if you support niceupdog / caitibugzz, if you tell random people to off themselves, ummm other then that i block whoever i find weird
+go awayyyyy if you tell random people to off themselves you are not funny you are weird dd ddd
 
 have a blessed day and may the gods smile upon you friend
 
